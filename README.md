@@ -1,5 +1,5 @@
 #  About Me:
-Hey there! I'm Yosua<br><br>Sharing my personal growth within Engineering and Science.<br><br>3rd Semester of Telecommunications Engineering at FI, UNAM.<br><br>-Practice makes perfect, or at least makes progress haha.<br><br><br>
+Hey there! I'm Yosua.<br><br>Sharing my personal growth within Engineering and Science.<br><br>3rd Semester of Telecommunications Engineering at FI, UNAM.<br><br>-Practice makes perfect, or at least makes progress haha.<br><br><br>
 
 
 ## 🌐 Socials:
